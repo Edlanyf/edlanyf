@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil da Edlanyf😁
+## Bem-vindo(a) ao perfil da Edlanyf👩‍💻
 
  <div>
    <a href="https://github.com/edlanyf">
